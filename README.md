@@ -1,6 +1,8 @@
-Father. Husband. Developer. 🙂
+Hi, I'm Barremian.
 
-Trying to build some stuff. 👍🍃
+I am a father, a husband, and a developer. 🙂
+
+I am trying to build some stuff. 👍🍃
 
 ----
 
